@@ -11,7 +11,7 @@
 
 ⚫️Secure and Legal: Using KMS Windows Activator is completely legal and secure. It is designed to work with Microsoft's own KMS (Key Management Service) servers, which are used by businesses around the world to manage their software licenses.  
 
-⚫️Free to Use: Best of all, KMS Windows Activator is free to use! There are no hidden fees or charges, so you can save money on software licenses while still enjoying all the benefits of a fully activated Windows installation.  
+⚫️Free to Use: Best of all, KMS Windows Activator is free to use! There are no hidden fees or charges, so you can save money on software licenses while still enjoying all the benefits of a fully activated Windows installation.   
 
 # <h1 align=center>⚡️ DOWNLOAD LINK⚡️
 | Mod Version| KMS LITE - Version | Link |
